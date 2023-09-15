@@ -1,4 +1,5 @@
-![best-streaming-services-with-local-channels-2e9516e596084099accdb355ec9eed2b](https://github.com/DennisWainaina/Phase_4_final_project/assets/116555573/18c6718f-96c0-4be0-aff6-6b5245de8787)
+![image](https://github.com/DennisWainaina/Phase_4_final_project/assets/116555573/10fad608-693e-4202-b7f5-fdff0fd58569)
+
 ## PHASE 4 FINAL PROJECT
 
 ## INTRODUCTION
